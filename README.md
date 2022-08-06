@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brun0c1ntra
-- 👀 I’m interested in podcasts, books and jiu jitsu
+- 👀 I’m interested in podcasts, books and coding
 - 🌱 I’m constantly learning and reading about new types of integrations and technologies
 - 💞️ I’m looking to collaborate on projects that my skills might be useful to assist or sumup with
 - 📫 How to reach me ... bruno772@gmail.com
